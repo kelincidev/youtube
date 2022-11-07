@@ -4,3 +4,7 @@
 ###### [Bit Struct](https://www.youtube.com/channel/UCt6j4fASWqqvlh3yCfIjz4Q) ######
 ###### [Attar Official](https://www.youtube.com/channel/UCjsscX_zHxCYIZmIX1y6Ykw) ######
 ###### [bot62](https://www.youtube.com/channel/UCj_q_TXzaGL0bn8twe8j1nw) ######
+
+
+## new ##
+###### [gusio gaming](https://www.youtube.com/channel/UCNh6KxmI8a6bJs9sINuyslQ) ######
