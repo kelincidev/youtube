@@ -4,7 +4,7 @@
 ###### [Bit Struct](https://www.youtube.com/channel/UCt6j4fASWqqvlh3yCfIjz4Q) ######
 ###### [Attar Official](https://www.youtube.com/channel/UCjsscX_zHxCYIZmIX1y6Ykw) ######
 ###### [bot62](https://www.youtube.com/channel/UCj_q_TXzaGL0bn8twe8j1nw) ######
-###### [bothex](https://www.youtube.com/channel/UC_97PhyP6bbUOHjxFUcotcg) ######
+###### [bot hex](https://www.youtube.com/channel/UC_97PhyP6bbUOHjxFUcotcg) ######
 
 
 ## new ##
